@@ -1,2 +1,2 @@
-# Yogja
+# Freefire
 EvenfreefireGarenagratis.com
